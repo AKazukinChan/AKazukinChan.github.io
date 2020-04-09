@@ -1,1 +1,1 @@
-# AKazukinKun.github.io
+# AKazukinChan.github.io
